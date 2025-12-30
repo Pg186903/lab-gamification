@@ -1,1 +1,0 @@
-# stomata labs gamification
